@@ -1,4 +1,12 @@
-### Hi there 👋
+### Hi there, I'm Anil Kesariya! 👋
+
+I'm workin in odoo Implementation, Technical and function Expert.
+
+I've sound knowledge of Python and PostgreSQL
+
+I have sound knowledege of AWS Server Setup NGINX | APACHE
+I'm learning ReactJS
+
 
 <!--
 **AnilKesariya/AnilKesariya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
