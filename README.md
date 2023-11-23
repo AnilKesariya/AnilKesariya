@@ -1,5 +1,5 @@
 
-![AK Github](https://github.com/AnilKesariya/AnilKesariya/assets/5101994/7c0fe58c-a532-41b4-804e-35cb6e9abb5c)
+![Eagle with Crown](https://github.com/AnilKesariya/AnilKesariya/assets/5101994/203f381f-0537-40c8-b1b8-a66247dbd07c)
 
 ### Hi there, I'm Anil Kesariya! 👋
 
