@@ -1,5 +1,5 @@
 
-![Eagle with Crown](https://github.com/AnilKesariya/AnilKesariya/assets/5101994/203f381f-0537-40c8-b1b8-a66247dbd07c)
+![Jupial Logo 02-04](https://github.com/AnilKesariya/AnilKesariya/assets/5101994/e6749e40-7370-46ba-b2be-8249697ad4e7)
 
 ### Hi there, I'm Anil Kesariya! 👋
 
