@@ -1,5 +1,6 @@
 
-![Jupial Logo 02-04](https://github.com/AnilKesariya/AnilKesariya/assets/5101994/e6749e40-7370-46ba-b2be-8249697ad4e7)
+![Jupical Logo 2024 (1)](https://github.com/AnilKesariya/AnilKesariya/assets/5101994/c8562ddc-7410-48db-8ce9-35346f8912d7)
+
 
 ### Hi there, I'm Anil Kesariya! 👋
 
