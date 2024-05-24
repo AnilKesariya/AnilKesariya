@@ -1,7 +1,4 @@
 
-![Jupical Logo 2024 (1)](https://github.com/AnilKesariya/AnilKesariya/assets/5101994/c8562ddc-7410-48db-8ce9-35346f8912d7)
-
-
 ### Hi there, I'm Anil Kesariya! 👋
 
 I'm workin in odoo Implementation, Technical and function Expert.
